@@ -1,4 +1,4 @@
-#  
+#  escape waves for lucky blocks Scripts automatic is the best escape waves for lucky blocks Script, featuring auto-farm and undetectable. Safe and
 
 
 
